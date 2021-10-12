@@ -1,7 +1,7 @@
 ## Moriah Chamber of Commerce
 Serving Port Henry, Moriah, and the surrounding commnuities 
 
-The Town of Moriah/Port Henry Chamber of Commerce was formed to strengthen area businesses and promote the community.  Please visit our members. 
+The Town of Moriah/Port Henry Chamber of Commerce was formed to strengthen area businesses and promote the community.  Please visit [our members](https://www.porthenrymoriah.com/living-here/chamber-commerce/chamber-members). 
 
 ## Contact Us:
 Do you have a question about the chamber, our members, events, history, or the local community?
