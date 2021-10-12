@@ -15,12 +15,13 @@ For Lake Champlain regional information 1-866-THE LAKE (866 843 5253)
 Join the Moriah Chamber of Commerce Today! We offer both business and individual memberships, Applications are avalible [here](https://www.porthenrymoriah.com/living-here/chamber-commerce/chamber-members)
 
 ### Member Benefits include: 
- - Directory listings on this website
- - Member referrals for visitors and community residents
- - Weekly Member Spotlight posts on the Chamber's Facebook page
- - Opportunities for networking with local business owners and community members
- - Calendar of event listings for Lake Champlain Region
- - Sponsorship opportunities
+ - Directory Listing on The Chamber Of Commerce Website
+ - Member Referrals for Vistoris &amp; Community Residents
+ - Weekly Member Spotlight &amp; Promotion Posts on the Chamber's [Facebook Page](https://www.facebook.com/moriahchamberny) & [Instagram Account](#)
+ - Networking Oppertunities with Local Business Owners &amp; Commnuity Members
+ - Event Listings on the Lake Champlain Region Calendar
+ - Sponsorship Opportunities
+ - Business Assistance &amp; Referrals
 
 
 ## Board Of Directors:
@@ -39,6 +40,7 @@ Join the Moriah Chamber of Commerce Today! We offer both business and individual
 | Director        | Gabe Jaquish    |
 
  ## Staff:
+ 
 | Position             | Position Holder      |
 |----------------------|----------------------|
 | Alixandra Wojewodzic | Office Administrator |
