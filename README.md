@@ -12,7 +12,7 @@ Unable to stop? Contact us via email at [MoriahChamber@gmail.com](mailto:moriahc
 For Lake Champlain regional information 1-866-THE LAKE (866 843 5253)
 
 ## Join the Chamber
-Join the Moriah Chamber of Commerce Today! We offer both business and individual memberships, Applications are avalible [here](https://www.porthenrymoriah.com/living-here/chamber-commerce/chamber-members)
+Join the Moriah Chamber of Commerce Today! We offer both business and individual memberships, Applications are avalible [here](./Moriah_Chamber_Application.pdf)
 
 ### Member Benefits include: 
  - Directory Listing on The Chamber Of Commerce Website
