@@ -26,18 +26,18 @@ Join the Moriah Chamber of Commerce Today! We offer both business and individual
 
 ## Board Of Directors:
 
-| Position        | Position Holder |
-|-----------------|-----------------|
-| President       | Lohr            |
-| Vice President  | Vince Dupont    |
-| Vice President  | Rick Lewis      |
-| Secretary       | Sharon O'Connor |
-| Payroll Officer | John Viestenz   |
-| Director        | Jackie Viestenz |
-| Director        | Andrea Anesi    |
-| Director        | Alric Lewis     |
-| Director        | Sue McHone      |
-| Director        | Gabe Jaquish    |
+| Position          | Position Holder  |
+|-------------------|------------------|
+| President         | Lohr             |
+| Vice President    | Vince Dupont     |
+| Vice President    | Rick Lewis       |
+| Secretary         | Sharon O'Connor  |
+| Financial Officer | John Viestenz    |
+| Director          | Jackie Viestenz  |
+| Director          | Andrea Anesi     |
+| Director          | Pam Lemza Putnam |
+| Director          | Sue McHone       |
+| Director          | Gabe Jaquish     |
 
  ## Staff:
  
