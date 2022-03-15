@@ -7,7 +7,7 @@ The Town of Moriah/Port Henry Chamber of Commerce was formed to strengthen area 
 Do you have a question about the chamber, our members, events, history, or the local community?
 
 Stop by our offices at [4317 Main Street in Port Henry, NY](https://goo.gl/maps/h3s3m3WNrJjhorgQ7) Monday - Thursday from 10am - 2pm.
-Unable to stop? Contact us via email at [MoriahChamber@gmail.com](mailto:moriahchamber@gmail.com) or via phone at +1 (518) 250-1050.
+Unable to stop? Contact us via email at [info@moriahchamber.com](mailto:info@moriahchamber.com) or via phone at +1 (518) 250-1050.
 
 For Lake Champlain regional information 1-866-THE LAKE (866 843 5253)
 
@@ -28,7 +28,7 @@ Join the Moriah Chamber of Commerce Today! We offer both business and individual
 
 | Position          | Position Holder  |
 |-------------------|------------------|
-| President         | Lohr             |
+| President         | Lohr McKinstry   |
 | Vice President    | Vince Dupont     |
 | Vice President    | Rick Lewis       |
 | Secretary         | Sharon O'Connor  |
@@ -36,7 +36,7 @@ Join the Moriah Chamber of Commerce Today! We offer both business and individual
 | Director          | Jackie Viestenz  |
 | Director          | Andrea Anesi     |
 | Director          | Pam Lemza Putnam |
-| Director          | Sue McHone       |
+| Director          | John Vaughan     |
 | Director          | Gabe Jaquish     |
 
  ## Staff:
