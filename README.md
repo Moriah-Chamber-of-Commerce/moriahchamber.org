@@ -60,3 +60,33 @@ PO Box 217, 7566 Court Street, Elizabethtown, NY 12932
 North Country Small Business Development Center
 
 North Country Small Business Development Center (NCSBDC) offers one-on-one business counseling and group training seminars, as well as informational resources for starting and growing your business.
+
+
+
+
+
+
+Port Henry/Moriah Chamber of Commerce
+
+The Town of Moriah/Port Henry Chamber of Commerce was formed to strengthen area businesses and promote the community.
+Please visit our members.
+
+Join the Chamber Today! We offer both business and individual memberships. (Application available here).
+
+Member Benefits include:
+*Directory listings on this website
+*Member referrals for visitors and community residents
+*Weekly Member Spotlight posts on the Chamber's Facebook page
+*Opportunities for networking with local business owners and community members
+*Calendar of event listings for Lake Champlain Region
+*Sponsorship opportunities
+
+
+
+Visit our office at 4317 Main Street in Port Henry, NY for business, member, and visitor information. Or just stop in to
+see the display of historic photos of the area and to purchase a souvenir t-shirt, mug, or postcard.
+
+Hours:
+Monday - Thursday, 10am - 2pm
+
+For Lake Champlain regional information 1-866-THE LAKE (866 843 5253)
