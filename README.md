@@ -34,8 +34,8 @@ Join the Moriah Chamber of Commerce Today! We offer both business and individual
 | Secretary         | Sharon O'Connor  |
 | Financial Officer | John Viestenz    |
 | Director          | Jackie Viestenz  |
-| Director          | Andrea Anesi     |
-| Director          | Pam Lemza Putnam |
+| Director          | Alana Gaddor     |
+| Director          | Tim Bryant       |
 | Director          | John Vaughan     |
 | Director          | Gabe Jaquish     |
 
@@ -43,7 +43,7 @@ Join the Moriah Chamber of Commerce Today! We offer both business and individual
  
 | Position             | Position Holder      |
 |----------------------|----------------------|
-| Alixandra Wojewodzic | Office Administrator |
+| Currently Unfilled   | Office Administrator |
  
 ## Other Business Resources
 ### Essex County Industrial Development Agency (IDA) Moriah Business Park
