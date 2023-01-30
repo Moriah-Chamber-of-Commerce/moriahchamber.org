@@ -28,16 +28,16 @@ Join the Moriah Chamber of Commerce Today! We offer both business and individual
 
 | Position          | Position Holder  |
 |-------------------|------------------|
-| President         | Lohr McKinstry   |
+| President         | Rick Lewis       |
 | Vice President    | Vince Dupont     |
-| Vice President    | Rick Lewis       |
+| Vice President    | Alana Gaddor     |
 | Secretary         | Sharon O'Connor  |
 | Financial Officer | John Viestenz    |
 | Director          | Jackie Viestenz  |
-| Director          | Alana Gaddor     |
 | Director          | Tim Bryant       |
 | Director          | John Vaughan     |
 | Director          | Gabe Jaquish     |
+| Director          | OPEN             |
 
  ## Staff:
  
